@@ -1,0 +1,1 @@
+# Strat-gie-chartiste-polyvalent-Trading-algorithmique
